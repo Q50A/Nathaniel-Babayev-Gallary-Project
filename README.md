@@ -1,1 +1,0 @@
-# Nathaniel-Babayev-Gallary-Project
